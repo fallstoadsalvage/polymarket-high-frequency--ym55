@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket instant Automation Script: price-monitoring & arbitrage-detection, the #1 automation-script. Includes price-monitoring and
 
 
 
